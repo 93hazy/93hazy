@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @93hazy
+- 👋 Assalamualaikum, I’m @93hazy or you can call me Khair. Sharar is my legal real name at the moment but I am changing it, Insha Allah.
 - 👀 I’m interested in the beauties and bounties of my religion. Subhanallah! 
 - 🌱 I’m currently learning web development, arabic, The Holy Quran and the Hadiths.
 - 💞️ I’m looking to collaborate on worshipping and loving in polygamous marriage and I'm also open to anything within my ability as far as projects.
